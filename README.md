@@ -1,3 +1,3 @@
 ### Hi there 👋
-- ✨ Pronouns: Any Pronouns
+- ✨ Pronouns: any pronouns
  
